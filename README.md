@@ -1,6 +1,6 @@
 Sobre Mim
 
-Olá! Meu nome é Shirley Roque e estou animada em compartilhar um pouco sobre minha jornada até aqui. Com 38 anos de idade, trago uma bagagem profissional diversificada, inicialmente enraizada na carreira corporativa da área da saúde. Como enfermeira, passei anos imersa em ambientes de emergência, onde aprendi a pensar rápido, agir com precisão e lidar com situações desafiadoras de forma calma e eficaz.
+Olá! Meu nome é Shirley Roque e estou animada em compartilhar um pouco sobre minha jornada até aqui.Trago uma bagagem profissional diversificada, inicialmente enraizada na carreira corporativa da área da saúde. Como enfermeira, passei anos imersa em ambientes de emergência, onde aprendi a pensar rápido, agir com precisão e lidar com situações desafiadoras de forma calma e eficaz.
 Minha paixão pela área da saúde me levou além, para a docência e educação permanente em saúde. Durante esse tempo, desenvolvi habilidades de comunicação sólidas, capacidade de adaptação e uma mentalidade voltada para o aprendizado contínuo.
 
 Nova Jornada: Tecnologia da Informação
