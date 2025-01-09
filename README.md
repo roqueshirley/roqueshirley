@@ -7,7 +7,7 @@ Nova Jornada: Tecnologia da Informação
 
 Recentemente, decidi embarcar em uma jornada completamente nova em busca de novos desafios e oportunidades de crescimento. Estou ingressando no mundo da tecnologia da informação (TI) com uma mente aberta e uma fome insaciável de conhecimento.
 
-Minha transição para a TI não é apenas uma mudança de carreira, mas sim uma evolução natural de meus interesses e habilidades. Estou particularmente fascinada pela análise de dados e pela programação de Front End. Acredito que essas áreas oferecem um vasto campo para explorar minha criatividade, minha habilidade analítica e minha paixão por criar soluções inovadoras.
+Minha transição para a TI não é apenas uma mudança de carreira, mas sim uma evolução natural de meus interesses e habilidades. Estou particularmente fascinada pela Desnvolvimento Front End e Web Designer. Acredito que essas áreas oferecem um vasto campo para explorar minha criatividade, minha habilidade analítica e minha paixão por criar soluções inovadoras.
 
 O Que Eu Trago para a Mesa
 
